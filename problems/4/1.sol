@@ -1,0 +1,10 @@
+FUS RO DAH!!
+KAMEHAMEHA!!!
+FUS RO DAH!!
+FUS RO DAH!!
+
+
+
+
+
+
